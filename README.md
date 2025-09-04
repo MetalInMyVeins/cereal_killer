@@ -25,5 +25,7 @@ aise je
 khaishta
 stoofid
 soraiyye
+fidbo sowar no hais
+fida no hais
 ```
 
