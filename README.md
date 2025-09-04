@@ -24,5 +24,6 @@ fidbo je direct
 aise je
 khaishta
 stoofid
+soraiyye
 ```
 
