@@ -1,5 +1,6 @@
 # Brainrot words used by Cereal_Killer
 ---
+```
 khekhekkhe TT
 kharus fac
 😾
@@ -16,4 +17,5 @@ stfu
 goru
 khali nesha goros fua
 matal
+```
 
