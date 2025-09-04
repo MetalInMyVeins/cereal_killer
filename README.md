@@ -19,5 +19,10 @@ khali nesha goros fua
 matal
 mwehuehehehe
 DON'T STEAL MY LANGGG
+fida habi ofut
+FOJATI
+fidbo je direct
+aise je
+khaishta
 ```
 
